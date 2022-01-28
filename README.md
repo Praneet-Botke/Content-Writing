@@ -3,4 +3,4 @@ Contains Content Writings on various Topics.
 
 I write on various topics and its my own words or creativity. 
 
-1. Education System: 
+1. Education System: Changing Approach with the Competitive World.
